@@ -1,2 +1,2 @@
 # dog_TR
-[![image](https://i.hizliresim.com/LnGGJG.jpg)](https://hizliresim.com/LnGGJG)
+[![image](https://i.hizliresim.com/8dXLnQ.jpg)](https://hizliresim.com/8dXLnQ)
